@@ -1,0 +1,1 @@
+maida , plain flour , salt, water , oil , garlic , ginger , chilli , onion , carrot , cabbage , pepper .
